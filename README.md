@@ -1,0 +1,1 @@
+# Code-for-Compound-atmospheric-and-soil-droughts-amplify-the-global-loss-of-vegetation-productivity
